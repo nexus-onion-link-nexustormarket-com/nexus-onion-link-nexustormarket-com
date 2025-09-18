@@ -39,4 +39,6 @@ For the official access, Official Nexus link http://nexuszpgb6wzczes3jvsqeoyiuvj
 <a href="http://nexuszpgb6wzczes3jvsqeoyiuvjttjscf7nbtvkiaeqzboj3fucjcad.onion"><img src="/images/thin.webp" style="max-width: 100%;"></a>
 <a href="http://nexuszpgb6wzczes3jvsqeoyiuvjttjscf7nbtvkiaeqzboj3fucjcad.onion"><img src="/images/store.webp" style="max-width: 100%;"></a>
 
-Update:  14 September url is reachable
+
+
+Update:  Thursday 18 September 2025
