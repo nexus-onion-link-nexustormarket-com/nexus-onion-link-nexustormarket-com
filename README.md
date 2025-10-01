@@ -41,4 +41,6 @@ For the official access, Official Nexus link http://nexuszpgb6wzczes3jvsqeoyiuvj
 
 
 
-Update:  Thursday 18 September 2025
+
+
+Update:  Wednesday 01 October 2025
